@@ -2,7 +2,7 @@
 
 ## publications
 
-# <li><a href="https://www.shaicohen.net">PRESS HERE for the homepage</a></li>
+# <a href="https://www.shaicohen.net">PRESS HERE for the homepage</a>
 
 ## contact me
 
