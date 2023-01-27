@@ -4,9 +4,7 @@
 
 <li><a href="https://www.shaicohen.net">PRESS HERE</a></li>
 
-´´´
-´´´
-´´´
+
 This course has the best prof ever! Go Susanna!! :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: 
 # publications
 ## first publication
