@@ -1,5 +1,5 @@
 # Shai Cohen Kadosh
-This course has the best prof ever! Go Susanna!! :joy: 
+This course has the best prof ever! Go Susanna!! :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: :joy: 
 # publications
 ## first publication
 ## second
